@@ -1,2 +1,10 @@
 # coofovi-kliky-v-dome
 Vypocet coofovych klik v jeho dome. (real no fake)
+
+MUJ NEJVETSI PROJEKT ZA ZIVOT, PRO DEVELOPER. NEJLEPSI
+
+OPRAVDU NEKECAM
+
+NAJMETE SI ME UDELAM DOBROU PRACI BEZ KOUKANISE.
+
+10/10 KLIK DOPORUCUJE.
